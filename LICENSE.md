@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://CyclopsOriole.github.io/the-strongest-batt-ph97/ ) |
  |---------------------|----------------------:|
 
 
